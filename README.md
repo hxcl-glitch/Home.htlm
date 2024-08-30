@@ -1,8 +1,1 @@
-|These are just layers...|
-|Layers of CODE and SUFFERING|
-|H
-|E
-|L
-|P
 
-MZXW6YTBOI======FYXXI2LKNU======FYXU6ZRQGA======EBXWYZL5OY======NRXW4ZL5O5======FYXU6ZJSNVXXXX==
